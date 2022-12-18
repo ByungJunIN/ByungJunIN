@@ -11,7 +11,8 @@ Computer Engineering 2021~2027
 
 
 ### 프로젝트
-(To be)비트 단기 
+(To be)비트 단기
+졸업 
 
 How to reach me: dlsqudwns123@naver.com
 
